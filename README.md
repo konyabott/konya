@@ -1,0 +1,2 @@
+# konya
+hoş geldiniz
